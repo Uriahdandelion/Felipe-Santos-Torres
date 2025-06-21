@@ -20,7 +20,7 @@
 ### 📫 Contato
 - 📧 felipe14zombie@gmail.com  
 - 📱 (21) 96786-7039  
-- 🔗 Em breve: LinkedIn atualizado  
+- 🔗 LinkedIn: www.linkedin.com/in/felipe-santos-torres-78b681252  
 
 ---
 
